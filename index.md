@@ -1,12 +1,3 @@
-home235p@gmail.com
-H35o2msu7p
-https://github.com/Fax55/fax55/blob/gh-pages/index.md
-d.pctv.ga
-a.wss.cam
-ub.com/Fax55/fax55/edit/gh-pages/index.mdhttps://gith
-https://git.io/fax55
-https://fax55.github.io/fax55/
-
 <p>2020/4/28 网址不定期更新，连不上时，请不同时间再试试。
 <p>• 建议用谷歌或火狐官方浏览器访问。
 <p>◎  • 视 频： 
