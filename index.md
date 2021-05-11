@@ -5,7 +5,7 @@
 <a href="http://mir.proyectolanuevatierra.com/" target="_blank">网址二</a> 　 
 <a href="http://mir.proyectolanuevatierra.com/b.html" target="_blank">网址三</a>  
 <a href="https://yadi.sk/d/d0sUeAOpal3njw" target="_blank">　• 云下载 </a></p>
-<p>◆ new! <a href="http://mki.proyectolanuevatierra.com/a.html">•分 享 网 址</a> ;（https://f.yutv.cf 请 收 藏） </p>
+<p> ◆ 分 享 网 址 <a href="mki.proyectolanuevatierra.com/a.html"></a>（https://f.yutv.cf 请 收 藏） </p>
 <p>◎ </span>  •  小 站：  
 <a href="http://mni.proyectolanuevatierra.com/f.html" target="_blank">网址一</a> 　 
 <a href="http://mir.proyectolanuevatierra.com/h.html" target="_blank">网址二</a> 　 
