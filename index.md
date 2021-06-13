@@ -5,7 +5,7 @@
 <a href="http://mod.proyectolanuevatierra.com/" target="_blank">网址一</a> 　 
 <a href="http://mje.proyectolanuevatierra.com/" target="_blank">网址二</a> 　 
 <a href="http://mku.proyectolanuevatierra.com/b.html" target="_blank">网址三</a>  
-<a href="https://yadi.sk/d/d0sUeAOpal3njw" target="_blank">　• 云下载 </a></p>
+
 <p> ◆ 分 享 网 址 （https://b.byou.cf/ 请 收 藏） </p>
 <p>◎ </span>  •  小 站：  
 <a href="http://mod.proyectolanuevatierra.com/f.html" target="_blank">网址一</a> 　 
