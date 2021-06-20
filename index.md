@@ -6,7 +6,7 @@
 <a href="http://mia.proyectolanuevatierra.com/" target="_blank">网址二</a> 　 
 <a href="http://moa.proyectolanuevatierra.com/b.html" target="_blank">网址三</a>  
 
-<p> ◆ 分 享 网 址 （d.byou.cf/ 请 收 藏） </p>
+<p> ◆ 分 享 网 址 （ e.byou.cf 请 收 藏） </p>
 <p>◎ </span>  •  小 站：  
 <a href="http://mra.proyectolanuevatierra.com/f.html" target="_blank">网址一</a> 　 
 <a href="http://mia.proyectolanuevatierra.com/h.html" target="_blank">网址二</a> 　 
