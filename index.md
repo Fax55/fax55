@@ -1,4 +1,4 @@
-<p>2020/6/24
+<p>2020/6/25
 <p>网址不定期更新，连不上时，请不同时间再试试。
 <p>• 建议用谷歌或火狐官方浏览器访问。
 <p>◎  • 视 频： 
@@ -6,7 +6,7 @@
 <a href="http://mii.proyectolanuevatierra.com/" target="_blank">网址二</a> 　 
 <a href="http://moi.proyectolanuevatierra.com/b.html" target="_blank">网址三</a>  
 
-<p> ◆ 分 享 网 址 （ h.byou.cf 请 收 藏） </p>
+<p> ◆ 分 享 网 址 （ i.byou.cf 请 收 藏） </p>
 <p>◎ </span>  •  小 站：  
 <a href="http://mri.proyectolanuevatierra.com/f.html" target="_blank">网址一</a> 　 
 <a href="http://mii.proyectolanuevatierra.com/h.html" target="_blank">网址二</a> 　 
