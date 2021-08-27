@@ -7,7 +7,7 @@
 <a href="http://mok.proyectolanuevatierra.com/tv.html" target="_blank">网址三</a>  
 <a href="https://disk.yandex.ru/d/wIUK0uxc3Gk4Ng" target="_blank">　• 云下载 </a></p>
 
-<p> ◆ 分 享 网 址 （ f.byou.cf 请 收 藏） </p>
+<p> ◆ 分 享 网 址 （ g.byou.cf 请 收 藏） </p>
 <p>◎   •  小 站：  
 <a href="http://mrk.proyectolanuevatierra.com/f.html" target="_blank">网址一</a> 　 
 <a href="http://mik.proyectolanuevatierra.com/h.html" target="_blank">网址二</a> 　 
